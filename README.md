@@ -9,4 +9,10 @@ Como preciso aprender mais sobre as páginas da internet estou:
 
   ## Espero ter um bom aprendizado e compartilhar minhas descobertas.
 
+
+
+
+
+
+
   ![](https://tenor.com/pt-BR/view/kid-goku-peace-dragon-ball-goku-dragonball-gif-13182064284191073202)
